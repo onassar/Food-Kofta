@@ -11,4 +11,4 @@ Ingredients
 - 1/2 white onion (minced)
 - 1 handful of parsley (minced)
 - 1/2 teaspoon of cumin
-
+- 1 garlic clove
